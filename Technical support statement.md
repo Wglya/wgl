@@ -1,0 +1,5 @@
+Technical support statement
+Dear users,
+We understand the importance of privacy to you and will do our best to protect your privacy.
+If you have any questions, please leave a message below or contact us in the following ways.
+Technical support: wgl123@163.com
